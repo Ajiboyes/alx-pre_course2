@@ -1,1 +1,1 @@
-"Hot fit"
+"Samo good"
